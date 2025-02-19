@@ -19,3 +19,12 @@ Luego, inclina el torso hacia adelante desde las caderas, asegurándote de mante
 Sujeción: Coloca las manos sobre la pierna estirada (puedes ponerlas sobre el muslo, tobillo o pie, dependiendo de tu flexibilidad). Mantén la postura durante 20-30 segundos.
 
 Repite el ejercicio: Vuelve a la posición inicial y cambia de pierna. Realiza 2-3 repeticiones por pierna.
+
+#Consejos:
+
+Evita sobrepasar tu límite. No te obligues a llegar más lejos de lo que te resulta cómodo. El estiramiento debe sentirse como una tensión ligera, no dolor.
+Mantén la espalda recta durante todo el movimiento. Evita redondear la columna vertebral para evitar lesiones.
+Respira profundamente durante el estiramiento para ayudar a relajarte y facilitar el alargamiento de los músculos.
+Si no puedes tocar tu pie, no te preocupes. Puedes usar una toalla o banda elástica alrededor de tu pie para ayudarte a mantener el estiramiento.
+Realiza este estiramiento de manera regular, especialmente después de actividades físicas intensas como correr o hacer pesas, para mejorar la flexibilidad y prevenir rigidez.
+
