@@ -21,3 +21,11 @@ Movimiento: Flexiona las rodillas y baja el cuerpo como si te estuvieras sentand
 Sube: Desde la posición más baja, empuja con los talones para volver a la posición inicial, manteniendo siempre el core activado y la espalda recta.
 
 Repite: Realiza 3 series de 12-15 repeticiones, descansando 30-60 segundos entre cada serie.
+
+#Consejos:
+
+Mantén la espalda recta: Evita encorvarte hacia adelante. Imagina que estás sentado en una silla invisible y mantén el torso erguido.
+No dejes que las rodillas se desvíen hacia adentro: Las rodillas deben seguir la misma dirección que los pies en todo momento.
+Controla el movimiento: Baja de forma controlada, evitando caer rápidamente. La fase de descenso debe ser lenta para maximizar los beneficios.
+Respira adecuadamente: Inhala mientras bajas y exhala al subir.
+Aumenta la dificultad: Si el ejercicio se vuelve demasiado fácil, puedes añadir peso adicional (como mancuernas o una barra) o realizar variaciones más avanzadas, como sentadillas con salto o sentadillas en una pierna.
