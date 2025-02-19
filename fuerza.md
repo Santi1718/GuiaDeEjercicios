@@ -15,3 +15,10 @@ Posición inicial: Colócate de pie, con los pies a la altura de los hombros y l
 Movimiento descendente: Flexiona las rodillas como si te fueras a sentar en una silla, llevando las caderas hacia atrás. Asegúrate de que las rodillas no sobrepasen los dedos de los pies.
 Profundidad: Baja hasta que tus muslos estén paralelos al suelo o hasta donde te sientas cómodo, manteniendo siempre la espalda recta.
 Regreso a la posición inicial: Empuja con los talones para volver a la posición de pie, extendiendo las rodillas y las caderas completamente.
+
+#Consejos:
+Mantén el core activado: Contrae el abdomen para proteger la espalda baja y mantener una buena postura.
+Evita que las rodillas se desplacen hacia adelante: Asegúrate de que las rodillas se mantengan alineadas con los pies y no se desplacen hacia adelante, lo que puede causar tensión innecesaria en las articulaciones.
+Comienza sin peso: Si eres principiante, realiza el ejercicio sin peso adicional para enfocarte en la técnica antes de añadir resistencia.
+Respiración: Inhala al bajar y exhala al subir. La respiración controlada es clave para mantener la estabilidad durante el movimiento.
+Varía el tipo de sentadillas: Puedes probar diferentes variantes de sentadilla, como la sentadilla con salto o la sentadilla con barra, para trabajar diferentes grupos musculares y mantener el entrenamiento interesante.
