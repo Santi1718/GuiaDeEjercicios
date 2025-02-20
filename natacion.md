@@ -10,3 +10,12 @@ Fortalece hombros y espalda alta: Trabaja principalmente los músculos del hombr
 Activa el core: La estabilidad del core es crucial para mantener la alineación del cuerpo y mejorar la propulsión en el agua, ayudando a que las piernas mantengan el ritmo.
 Aumenta la flexibilidad de los hombros: Al extender los brazos hacia atrás y realizar el movimiento controlado, se mejora la flexibilidad y rango de movimiento de los hombros.
 Mejora la resistencia cardiovascular: La práctica constante de este ejercicio incrementa la capacidad cardiovascular al mantener el ritmo constante de los movimientos.
+
+# Instrucciones:
+
+Comienza en la piscina, en posición horizontal sobre el agua, con el cuerpo alineado y los brazos extendidos hacia arriba, tocando ligeramente el agua. Asegúrate de que tu cuerpo esté en línea recta desde la cabeza hasta los pies.
+Inicia el movimiento de la brazada llevando el brazo derecho hacia atrás, manteniéndolo recto, mientras el brazo izquierdo comienza a entrar en el agua para iniciar su brazada.
+Al completar el movimiento de un brazo hacia atrás, gira ligeramente el cuerpo en la dirección del brazo que se mueve (un leve giro de cadera y torso). Asegúrate de que los movimientos sean largos y fluidos.
+Alterna los movimientos de los brazos, haciendo un círculo continuo hacia atrás, sin detenerse. La patada de piernas debe ser constante, ayudando a mantener el cuerpo estable y alineado.
+Mantén la cabeza en posición neutral, mirando al techo o ligeramente hacia atrás, evitando levantarla demasiado del agua.
+Continúa el ejercicio durante 10-15 minutos, asegurándote de que cada brazada sea controlada, suave y eficiente.
