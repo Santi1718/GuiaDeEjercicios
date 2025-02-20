@@ -6,4 +6,12 @@ Los Saltos de tijera son un ejercicio cardiovascular simple pero efectivo que tr
 2. Quema calorías: Es excelente para quemar calorías, lo que ayuda a la pérdida de peso.
 3. Tonifica el cuerpo: Trabaja varias partes del cuerpo, incluyendo las piernas, los glúteos, los brazos y el abdomen.
 4. Mejora la coordinación: El movimiento de las extremidades mejora la sincronización y la coordinación general.
-5. Reduce el estrés: Es un ejercicio dinámico que ayuda a liberar tensiones y a mejorar el estado de ánimo.
+5. Reduce el estrés: Es un ejercicio dinámico que ayuda a liberar tensiones y a mejorar el estado de ánimo.v
+### Instrucciones:
+1. Párate con los pies juntos y las manos a los lados.
+2. Da un salto, abriendo las piernas y elevando los brazos por encima de la cabeza, como si estuvieras haciendo una "X".
+3. Regresa a la posición inicial dando otro salto, cerrando las piernas y bajando los brazos.
+4. Repite este movimiento durante 30-60 segundos o según tu capacidad.
+
+
+
