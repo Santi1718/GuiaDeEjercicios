@@ -19,3 +19,11 @@ Al completar el movimiento de un brazo hacia atrás, gira ligeramente el cuerpo 
 Alterna los movimientos de los brazos, haciendo un círculo continuo hacia atrás, sin detenerse. La patada de piernas debe ser constante, ayudando a mantener el cuerpo estable y alineado.
 Mantén la cabeza en posición neutral, mirando al techo o ligeramente hacia atrás, evitando levantarla demasiado del agua.
 Continúa el ejercicio durante 10-15 minutos, asegurándote de que cada brazada sea controlada, suave y eficiente.
+
+# Consejos:
+
+Mantén la alineación del cuerpo: Asegúrate de que el cuerpo esté lo más plano posible, evitando movimientos excesivos en las caderas que puedan crear resistencia.
+Controla la patada: Las piernas deben realizar una patada constante, pero suave. Evita patadas rápidas o descontroladas, ya que pueden generar resistencia innecesaria.
+Enfócate en la brazada larga: Evita apresurar los movimientos de los brazos. Concédele tiempo a cada brazada para maximizar el deslizamiento y la propulsión en el agua.
+Relaja los hombros: Si sientes tensión en los hombros, ajusta el ángulo de entrada de los brazos en el agua para asegurar un movimiento más fluido y menos forzado.
+No levantes demasiado la cabeza: Mantén la cabeza en una posición neutral o ligeramente hacia atrás, mirando al techo. Levantar demasiado la cabeza puede generar resistencia y desalinear el cuerpo.
