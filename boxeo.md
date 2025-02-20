@@ -21,3 +21,11 @@ El Golpe al Aire es un ejercicio de boxeo diseñado para mejorar la técnica, la
 5. Realiza el ejercicio durante 2-3 minutos, descansando 30 segundos entre series. Haz de 3 a 5 rondas de golpeo al aire para un entrenamiento completo.
 6. Al final de cada ronda, haz una pausa breve para relajarte, luego regresa a la posición de combate y repite.
 
+## Consejos:
+
+- Mantén la guardia alta: Durante todo el ejercicio, asegúrate de mantener los puños cerca de tu rostro para protegerte, como lo harías en un combate real.
+- Controla el movimiento: Aunque se trata de rapidez, enfócate en la precisión de los golpes, asegurándote de que cada uno tenga una técnica adecuada.
+- Gira los pies y caderas: Cada golpe debe ir acompañado de una leve rotación de las caderas y los pies, esto no solo mejora la potencia de los golpes, sino que también activa el core.
+- Varía las combinaciones: Experimenta con diferentes combinaciones de golpes (jab, cross, uppercut, hook) para mantener el ejercicio desafiante y trabajar diferentes músculos.
+- Respira correctamente: Exhala al golpear y mantén la respiración fluida. Esto te ayudará a mantener la energía durante el ejercicio.
+- Calienta y estira: Antes de comenzar, realiza un calentamiento adecuado para preparar los músculos, y al finalizar, realiza estiramientos para prevenir lesiones.
