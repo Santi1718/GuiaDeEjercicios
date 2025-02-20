@@ -18,3 +18,11 @@ Inhala profundamente y, al exhalar, activa tu abdomen y comienza a levantar lent
 Mantén la posición de puente, asegurándote de que la espalda baja no se arquee y que tu abdomen esté bien activado.
 Mantén la postura durante 3 a 5 segundos, respirando profundamente, luego baja lentamente la pelvis hacia el suelo con control.
 Repite el movimiento 10-12 veces, asegurándote de mantener el control y la activación del core durante todo el ejercicio
+
+# Consejos:
+
+Mantén el cuello relajado y alinea la cabeza con la columna vertebral. Evita que la cabeza se levante o se hunda.
+Evita levantar las caderas demasiado alto. El objetivo es mantener la espalda plana, no crear un arco excesivo.
+Si tienes problemas en la zona lumbar o cuello, realiza el ejercicio con movimientos más pequeños y controla siempre la activación del abdomen.
+Respira constantemente. Evita contener la respiración, ya que esto puede generar tensión en el cuerpo.
+Si sientes dolor o incomodidad en la parte baja de la espalda, intenta no elevar las caderas tanto o ajusta la posición de los pies, asegurándote de que estén alineados correctamente.
