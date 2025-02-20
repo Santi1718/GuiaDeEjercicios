@@ -21,3 +21,12 @@ Desde ahí, extiende los brazos hacia arriba, creando una "v" invertida con las 
 Mira un punto fijo frente a ti para ayudarte a mantener el equilibrio.
 Respira profundamente y mantén la postura entre 30 segundos y 1 minuto. Cambia de pierna y repite.
 Sal de la postura con cuidado, llevando los pies nuevamente al suelo.
+
+# Consejos:
+
+Si te cuesta mantener el equilibrio, apóyate ligeramente con las manos sobre una pared o usa un bloque de yoga bajo el pie de apoyo.
+Asegúrate de que la base de tu pie de apoyo esté completamente enraizada al suelo, distribuyendo el peso de manera uniforme.
+Si sientes tensión en las caderas, trata de ajustar la posición del pie que está arriba para encontrar un lugar cómodo, siempre evitando la rodilla.
+Mantén la respiración fluida y relajada para favorecer la estabilidad mental.
+Practica la postura de forma progresiva. Si al principio no puedes mantener el equilibrio durante mucho tiempo, está bien. La práctica constante te ayudará a mejorar.
+ 
