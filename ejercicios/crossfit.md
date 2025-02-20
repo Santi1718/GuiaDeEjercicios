@@ -22,3 +22,12 @@ Salta hacia adelante para que tus pies queden debajo de las caderas y, con un im
 Aterriza suavemente sobre la caja con ambos pies y, sin detenerte, realiza un salto hacia abajo y regresa al suelo.
 Repítelo durante 30 segundos a 1 minuto, o según tu nivel de acondicionamiento, descansando 30 segundos entre rondas.
 Realiza de 3 a 5 rondas para obtener un entrenamiento completo.
+
+## Consejos:
+
+Mantén el core firme: Al hacer el burpee, asegúrate de que el core esté siempre activado, evitando que la cadera se hunda o que el cuerpo se arquee en exceso.
+Aterriza suavemente: Cuando saltes a la caja, trata de aterrizar suavemente con las rodillas ligeramente dobladas para reducir el impacto y evitar lesiones.
+Usa la respiración adecuada: Inhala al bajar y exhala al subir. Mantén una respiración constante y controlada para no fatigarte rápidamente.
+Comienza con una caja baja: Si eres principiante, empieza con una caja baja o una plataforma estable para asegurarte de tener la forma adecuada antes de aumentar la altura de la caja.
+Concéntrate en la explosividad: El salto de caja debe ser rápido y controlado. No te preocupes por la altura, enfócate en el movimiento explosivo hacia arriba.
+Realiza una progresión gradual: Si el ejercicio completo es demasiado desafiante al principio, puedes dividirlo en dos ejercicios: haz burpees sin el salto de caja o realiza saltos de caja sin hacer los burpees.
