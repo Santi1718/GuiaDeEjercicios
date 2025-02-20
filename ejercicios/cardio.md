@@ -12,6 +12,13 @@ Los Saltos de tijera son un ejercicio cardiovascular simple pero efectivo que tr
 2. Da un salto, abriendo las piernas y elevando los brazos por encima de la cabeza, como si estuvieras haciendo una "X".
 3. Regresa a la posición inicial dando otro salto, cerrando las piernas y bajando los brazos.
 4. Repite este movimiento durante 30-60 segundos o según tu capacidad.
+## Consejos:
+1. Controla la respiración: Inhala y exhala de manera constante para evitar quedarte sin aliento. Respira profundamente desde el abdomen.
+2. Mantén una buena postura: Mantén la espalda recta, no dejes que la parte baja de la espalda se curve hacia adentro.
+3. Comienza lento: Si eres principiante, empieza con series cortas, como 20-30 segundos, y aumenta la duración según vayas ganando resistencia.
+4. Calienta antes: Haz una rutina de calentamiento antes de comenzar para evitar lesiones.
+5. Escucha a tu cuerpo: Si sientes algún dolor o molestias, detente y descansa.
+
 
 
 
