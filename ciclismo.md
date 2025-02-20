@@ -21,3 +21,11 @@ Comienza a pedalear con una cadencia baja, utilizando fuerza para empujar hacia 
 Aumenta gradualmente la resistencia durante 5-10 minutos, como si estuvieras subiendo una colina de manera progresiva. Mantén la respiración controlada y no te apresures; el objetivo es la resistencia, no la velocidad.
 Si estás usando una bicicleta estática, puedes mantener la postura erguida o, si prefieres mayor reto, inclinarte un poco hacia adelante, como si estuvieras realmente subiendo una pendiente.
 Después de 5-10 minutos de subida, reduce la resistencia y pedalea a un ritmo más ligero para recuperar.
+
+# Consejos:
+
+No te apresures: El objetivo es mantener un ritmo constante y eficiente, no hacer el ejercicio demasiado rápido. Un pedaleo controlado te permitirá trabajar más músculos.
+Usa la posición adecuada: Mantén la espalda recta, los hombros relajados y evita encorvarte hacia adelante. La postura correcta es clave para evitar lesiones y mejorar el rendimiento.
+Ajusta la resistencia gradualmente: Si el terreno es demasiado empinado o la resistencia demasiado alta, baja un poco la carga. Es importante que puedas pedalear de manera constante sin perder el control.
+Controla la respiración: Respira de manera profunda y controlada, especialmente cuando el esfuerzo aumenta. Esto ayudará a mejorar tu resistencia y evitará que te fatigue rápidamente.
+Varía la duración: Si eres principiante, empieza con intervalos más cortos (2-5 minutos de subida), y conforme avances, aumenta el tiempo de trabajo en la pendiente.
