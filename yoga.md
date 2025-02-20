@@ -12,3 +12,12 @@ Estimula la circulación: Con la posición de los brazos elevados, se facilita e
 Abre el pecho y la cadera: La postura ayuda a liberar tensiones en el área del pecho y caderas.
 Reduce el estrés y la ansiedad: Al centrarse en la respiración y el equilibrio, promueve un estado de calma mental.
 
+# Instrucciones:
+
+Comienza en Tadasana (postura de la montaña), con los pies firmemente plantados en el suelo.
+Lleva tu peso sobre un pie (por ejemplo, el pie derecho) y coloca la planta del pie izquierdo en el muslo derecho, por debajo de la ingle, o en la pantorrilla, evitando que el pie toque la rodilla. Mantén las caderas abiertas y el torso erguido.
+Lleva tus manos al corazón en una posición de oración (Anjali Mudra).
+Desde ahí, extiende los brazos hacia arriba, creando una "v" invertida con las palmas enfrentadas, y alarga la columna vertebral hacia el cielo.
+Mira un punto fijo frente a ti para ayudarte a mantener el equilibrio.
+Respira profundamente y mantén la postura entre 30 segundos y 1 minuto. Cambia de pierna y repite.
+Sal de la postura con cuidado, llevando los pies nuevamente al suelo.
